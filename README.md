@@ -5,7 +5,7 @@
 
 - 🤝 I’m looking to collaborate on **anything and everything that adds on to my CV**
 
-- 📫 Reach me at **nilaysharma.iitd@gmail.com**
+- 📫 Reach me at **nilay2april@gmail.com**
 
 - 🌍 Currently based in **New Delhi, India**
 
